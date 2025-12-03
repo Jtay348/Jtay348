@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jtay348
-- 👀 I’m interested in setting up my first project on GitHub.
-- 🌱 I’m currently learning about Linux.
-- 💞️ I’m looking to collaborate with a team on a project after I graduate DeVry University.
+- 👀 I’m interested in setting up my first project on GitHub, IT Administration Student | Tech Support | Networking Enthusiast.
+- 🌱 I’m currently learning about Linux and building inclusive tech solutions with a passion for innovation.
+- 💞️ I’m looking to collaborate with a team on a project.
 - 📫 How to reach me through email (joannataylor19@gmail.com).
 - 😄 Pronouns: She/Her.
 - ⚡ Fun fact: my personality trait is ISTJ. Ironically, I enjoy serving others and aspire to be a ghostwriter one day.
